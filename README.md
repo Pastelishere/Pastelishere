@@ -1,1 +1,2 @@
-https://cdn.discordapp.com/attachments/1059678829695729685/1557627316878974976/IMG_5361.gif?ex=6ac87cfb&is=6ac72b7b&hm=9532b3c7bf8115f7a26889f8ca0a3054b8381e4fef3305524b4873ff77f35a08
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/18653577-01a2-4eae-877f-fe666ade27c0" />
+
